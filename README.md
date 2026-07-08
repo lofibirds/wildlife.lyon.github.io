@@ -1,2 +1,2 @@
-# lofibird.github.io
+# lofibirds.github.io
 Capturing the essence of bird watching.
